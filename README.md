@@ -3,4 +3,4 @@
 - 🌱 I’m currently learning keyboard layout.
 - 💞️ I want to cooperate with my schizophrenia.
 - 😄 Pronouns: taburetka. (табуретка)
-- ⚡ Fun fact: One day, I was on the 3rd story of my house and I accidentally fell off. I got hurt and decided to start my own Github page.
+- ⚡ Fun fact: One day, I was on the 2rd story of my house and I accidentally fell off. I got hurt and decided to start my own Github page.
